@@ -1,5 +1,3 @@
-# Artem-Antonevych
-
 # Hi there, I'm Artem! 👋
 
 ## About Me
